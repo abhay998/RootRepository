@@ -1,1 +1,0 @@
-# swach-bharat-abhiyan
